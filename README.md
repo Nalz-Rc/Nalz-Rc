@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi Bro n Sist 👋
 
 My name is Ronald Cahya 
 
